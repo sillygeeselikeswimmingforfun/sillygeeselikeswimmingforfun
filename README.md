@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sillygeeselikeswimmingforfun
+- hii , i. am @sillygeeselikeswimmingforfun
 - more info on my straw! https://sillygeeselikeswimming.straw.page/
 
 <!---
